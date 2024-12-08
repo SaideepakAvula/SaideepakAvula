@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **MERN , Java , Python**
 
-- 📫 How to reach me **saideepakavula@gmail.com**
+- 📫 How to reach me **saideepakavula02@gmail.com**
 
 - ⚡ Fun fact **I am fun Loving**
 
